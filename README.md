@@ -12,4 +12,18 @@ este repositorio tiene los archivos completos de cada una de las actividades que
 <img width="1470" height="956" alt="Captura de pantalla 2026-11-24 a la(s) 7 20 06 p  m" src="https://github.com/user-attachments/assets/9424d38e-64d0-4125-8af8-36bfed7121c9" />
 
 
+<img width="1470" height="956" alt="Captura de pantalla 2026-11-24 a la(s) 7 20 26 p  m" src="https://github.com/user-attachments/assets/575c01ec-8c73-4ff6-9ab5-5fedd0765022" />
+
+
+<img width="1470" height="956" alt="Captura de pantalla 2026-11-24 a la(s) 7 20 36 p  m" src="https://github.com/user-attachments/assets/9075341d-10a6-40c4-9b18-f6adb32ba45d" />
+
+
+<img width="1470" height="956" alt="Captura de pantalla 2026-11-24 a la(s) 7 20 48 p  m" src="https://github.com/user-attachments/assets/4dd0a468-9724-4d2b-8cb5-c918abf6fcfd" />
+
+
+
+
+
+
+
 
